@@ -1,3 +1,6 @@
 - 👋 Wenas, Soy @Cristopher-M
 - 👀 I’m interested in old tech and city pop music.
 - 🌱 I’m currently learning in Preparatoria Tecmilenio.
+- 『---------------------------------------------』
+- ᲼  『BIG WAVE』山下 達郎 FRICKING MASTERPIECE
+- 『---------------------------------------------』
